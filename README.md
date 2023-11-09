@@ -10,5 +10,5 @@ Meu nome é Vinicius Barbosa
 
 barbosa.lima.vinicius@escola.pr.gov.br
 
-![](https://tenor.com/t5xxL2DZC2q.gif)
+![](https://tenor.com/bew4F.gif)
 
